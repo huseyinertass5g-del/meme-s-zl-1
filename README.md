@@ -1,1 +1,1 @@
-# meme-s-zl-1
+bu bir meme sözlüğüdür
